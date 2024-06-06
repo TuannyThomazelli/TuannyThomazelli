@@ -1,3 +1,2 @@
-
-![image](https://github.com/TuannyThomazelli/TuannyThomazelli/assets/159180638/c7dde573-1019-485f-a501-c9f90e39a984)
+![image](https://github.com/TuannyThomazelli/TuannyThomazelli/assets/159180638/f5784a1e-f308-4af6-9a89-7eaa4454ad31)
 
